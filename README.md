@@ -1,1 +1,1 @@
-# NotesHub
+Get Your Notes
